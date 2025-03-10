@@ -1,0 +1,1 @@
+Its mainly beeen more of regrouping and coolectively deciding how to move forward with the work this week.We held 3 meeting one at the weekly lab seesion on monday and then one on wensday and another on saturday.
